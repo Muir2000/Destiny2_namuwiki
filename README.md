@@ -1,0 +1,1 @@
+# Destiny2_namuwiki
